@@ -1,0 +1,3 @@
+**OCCUPATION:** Developer
+
+**COLOR:** Rainbow
